@@ -8,3 +8,7 @@
 ### voce pode entrar em contato comigo 📧
 
 Lucas.Donadelli@escola.pr.gov.br
+
+
+
+![](https://media.tenor.com/gWtSWg7wbUcAAAAd/ja-morant-american-basketball-payer.gif)
